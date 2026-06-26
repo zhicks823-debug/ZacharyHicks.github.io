@@ -1,2 +1,0 @@
-# ZacharyHicks.github.io
-Website 
